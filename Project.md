@@ -1,0 +1,1 @@
+como o projeto vai ficar de fato
